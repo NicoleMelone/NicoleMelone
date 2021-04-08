@@ -17,5 +17,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: nikimarie208@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I love rock climbing and video games on my down time. 
+- ⚡ Fun fact: I love rock climbing and video games in my down time. 
 -->
